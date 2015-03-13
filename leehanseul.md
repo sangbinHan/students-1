@@ -1,5 +1,5 @@
 
-201321089이한슬/미디어학과/e-mail: sssssseul@hanmail.net 
+201321089이한슬/ 미디어학과/ e-mail: sssssseul@hanmail.net 
 
 좋아하는것: 가만히 누워있기, 먹기, 책읽기
 
